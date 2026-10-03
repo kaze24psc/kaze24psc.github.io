@@ -1,1 +1,1 @@
-# kaze24psc.github.com
+# kaze24psc.github.io
